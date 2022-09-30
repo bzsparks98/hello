@@ -1,1 +1,2 @@
 # hello
+So I looked into the lyrics of I'm Good (Blue) and discovered that what makes the song explicit is the use of a single naughty word throughout the song. Arguably not pre-teen appropriate, arguably not as bad as other songs. There is a clean version though! :)
